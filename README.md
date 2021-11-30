@@ -13,7 +13,7 @@ answer daily double
 
 no monkey thought about it and decide hes not a bird 
 
-owl thouth this is beneath me 
+owl thougth this is beneath me 
 
 when asked they both say who 
 
